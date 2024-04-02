@@ -1,0 +1,1 @@
+# Mackintosh-Z590-10400F-RX6600
